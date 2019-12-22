@@ -1,6 +1,6 @@
 ## Tuna Salad Grain Bowl
 
-[TaseMade YouTube video](https://www.youtube.com/watch?v=CkJ0REz-UQA)
+[TasteMade YouTube video](https://www.youtube.com/watch?v=CkJ0REz-UQA)
 
 ### Ingredients
 
@@ -26,3 +26,10 @@ For the tuna salad bowl:
 * 2 carrots, grated
 * ½ bunch radish, cut into matchsticks
 * 3 scallions
+
+### Steps:
+1. Make the quinoa and tuna - In a saucepan on medium heat, add quinoa. Continuously stir until it begins to toast and smell nutty, about 5 minutes. Add the water and salt, then bring to a slow simmer. Cover and cook until water is absorbed about 30 minutes. Allow to cool.
+2. In a bowl, add tuna, half avocado, mayo, salt, and pepper. Mix, but keep slightly chunky. Set aside.
+3. Make the dressing and salad - In a small bowl, whisk mayonnaise, miso, vinegar, soy sauce, rice vinegar, and oil.
+4. In a large bowl, add cabbage, carrots, scallions, and radishes. Toss about ¾ of dressing in salad and mix together to combine.
+5. To assemble - In a new bowl, add half of the quinoa, half the dressed salad, and tuna salad. 6. Top with slices of half an avocado. Drizzle remaining dressing, and enjoy.
