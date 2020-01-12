@@ -31,3 +31,5 @@
 7. Remove from the oven and place chocolate chunks on top of the bread (they will melt over the top).
 8. Remove the bread by lifting the parchment paper up and out of the pan. 
 9. Place the bread on a cutting board or rack to cool another 20 minutes before slicing.
+
+*Tip: Keep bread in an airtight container in the refrigerator up to 7 days or in the freezer 30 days.*
