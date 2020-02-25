@@ -3,8 +3,8 @@
 
 ### Ingredients:
 * 8 hard-boiled eggs
-* 1/2 mayo
-* 1 mustard packet
+* 1/2 cup mayo
+* 1/2 teaspoon yellow mustard
 * 2 scallions
 * 4 slices tomato
 * 4 slices lettuce
