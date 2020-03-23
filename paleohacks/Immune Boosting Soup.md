@@ -31,4 +31,4 @@
 7. Then let simmer, covered for 1 hour or as long as you want (the longer you leave, the better!)
 
 8. Add bok choy and kale in the last 10 minutes of cooking to wilt.
-9. Serve warm or store for up to 1 week in the refrigerator
+9. Serve warm or store for up to 1 week in the refrigerator.
