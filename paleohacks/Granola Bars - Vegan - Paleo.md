@@ -1,4 +1,4 @@
-## Granola Bars - Paleo Vegan
+## Granola Bars Paleo Vegan
 
 [NutritonRefined](https://nutritionrefined.com/granola-bars-with-date-caramel)
 
