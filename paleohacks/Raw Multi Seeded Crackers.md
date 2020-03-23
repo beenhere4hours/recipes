@@ -1,5 +1,5 @@
 
-[Nutrition Refined] (https://nutritionrefined.com/super-seedy-crackers/)
+[Nutrition Refined](https://nutritionrefined.com/super-seedy-crackers/)
 
 
 ##Raw Multi Seeded Crackers
