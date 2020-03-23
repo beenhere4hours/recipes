@@ -2,10 +2,10 @@
 [Nutrition Refined](https://nutritionrefined.com/super-seedy-crackers/)
 
 
-##Raw Multi Seeded Crackers
+## Raw Multi Seeded Crackers
 
 
-##Ingredients
+## Ingredients
 * 1 cup raw sunflower seeds
 * 1/2 cup raw sesame seeds*
 * 1/3 cup golden flax seeds, coarsely ground
@@ -14,7 +14,7 @@
 
 
 
-##Instructions
+## Instructions
 1. Combine all the seeds in a large bowl, 
    Add the water and salt and let the mixture sit for a few minutes, until all the water is absorbed.
 
@@ -28,10 +28,10 @@ Store leftover crackers in an airtight container at a room temperature for up to
 For longer term storage, freeze in an airtight container for up to 1 month.
 
 
-##Notes 
+## Notes 
 For raw crackers, use raw unhulled sesame seeds. Unhulled sesame seeds are very crunchy, almost hard, and taste slightly bitter. 
 Toasted hulled sesame seeds (not raw), on the other hand, have a nutty, clean flavor.
 
 
-**The easiest way to flip the cracker is to slide the parchment paper from the baking sheet onto a big cutting board. 
+** The easiest way to flip the cracker is to slide the parchment paper from the baking sheet onto a big cutting board. 
 Then cover the cutting board with the baking sheet and flip the cutting board over.
